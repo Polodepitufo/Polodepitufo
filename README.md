@@ -54,5 +54,3 @@ Actualmente cursando un **Curso de Especialización en Ciberseguridad**. ₊˚�
 - **Grado Superior en Desarrollo de Aplicaciones Web (DAW)** · IES Cristóbal de Monroy (2021–2023).
 - **Grado en Comunicación Digital** · Centro Universitario San Isidoro (2016–2020).
 - **Diploma en Diseño Gráfico** · Centro Universitario San Isidoro (2016–2020).
-
-**¡Gracias por visitar mi perfil!** ⋆⁺₊♡
